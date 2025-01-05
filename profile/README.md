@@ -15,13 +15,12 @@ In this article, we’ll debate into what Fluxus Executor is, how to use it effo
 |:-------------------------------------------------:|
 [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://fluxusgeek.com/)  |
 | *Platform: *Android 5.0+                     
-| *Size: *107 Mb                                                  
-| *Version: *2.18.0    |
-| Category : Media & Entertainment |
-| MOD : Premium Unlocked/No Ads
+| *Size: *532.71 MB                                                  
+| *Version: *2.654    |
+| Category : Tool |
 | ⭐⭐⭐⭐⭐ |
 
-![Fluxus Executors 1](https://github.com/user-attachments/assets/05f5010e-261d-4388-a8fc-2ce0d835ab9c)
+![Fluxus Executors 4](https://github.com/user-attachments/assets/f8f25d72-6202-49d4-b484-cc26bcd3d706)
 
 
 ## What is Fluxus Executor?
